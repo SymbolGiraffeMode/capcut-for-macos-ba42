@@ -1,4 +1,4 @@
-
+CapCut for macOS professional Extension: collaboration-tools & stock-assets-integration offers the most advanced CapCut for macOS extension, with collaboration-tools and
 
 
 
